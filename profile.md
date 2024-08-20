@@ -1,0 +1,1 @@
+My name is Yasmin Ismaila Morrison, I am a student of the University of Ghana and I offer Information Technology.
